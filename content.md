@@ -58,12 +58,14 @@ Starter: $399 per month
 1 meal per day
 Order times are between 11am and 9pm
 Delivery is free
+
 Complete: $649 per month
 
 2 meal2 per day
 Order 24/7
 Delivery is free
 Get access to latest recipes
+
 Photo gallery
 [Use the 12 photos we provided]
 
